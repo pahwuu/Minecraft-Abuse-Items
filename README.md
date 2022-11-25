@@ -10,7 +10,8 @@ Server Crasher,
 Custom Armors,
 Force Op Books,
 Normal (hehe) Books,
-Grief Tools
+Grief Tools,
+Hypixel Kits
 And much more
  ~ ~ ~
 
