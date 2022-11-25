@@ -1,4 +1,6 @@
 # Minecraft-Abuse-Items
+# YOU CAN'T GET ITEMS YET (THE PROJECT IS NOT READY YET)
+
 
 Want Minecraft Abuse stuff?
 Send me a private message if you want minecraft abuse stuff
