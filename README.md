@@ -13,7 +13,6 @@ Normal (hehe) Books,
 Grief Tools,
 Hypixel Kits
 And much more
- ~ ~ ~
 
 Offers:
 One Shulker Box (Grief Items) 0.50€
