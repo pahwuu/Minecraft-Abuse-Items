@@ -22,3 +22,4 @@ If you want private items that no one has then you can buy a private grief box f
 I WILL ONLY ANSWER ON FRIDAY AND SATURDAY 
 15.00 - 00.00 (FINNISH TIME)
 
+My discord is Pahweli#9097
